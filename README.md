@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nal19
 - 👀 I’m interested in CyberSecurity
 - 🌱 I’m currently learning EthicalHacking
-- 💞️ I’m looking to collaborate on EthicalHackers & Cybersecurity Professionals
+- 💞️ I’m looking to collaborate with EthicalHackers & Cybersecurity Professionals
 - 📫 How to reach me nalthehcaker@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: New here!
